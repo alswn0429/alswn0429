@@ -8,7 +8,7 @@
 	
 ### Hi There~ 👋
 
-### ABOUT ME
+### WHY DON'T YOU HEAR MY STORY?
 [HERE🤪](https://alswn0429.github.io)
 </div>
 <!--
